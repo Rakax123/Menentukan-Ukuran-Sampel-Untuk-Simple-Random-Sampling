@@ -1,0 +1,1 @@
+# Menentukan-Ukuran-Sampel-Untuk-Simple-Random-Sampling
